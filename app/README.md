@@ -73,3 +73,10 @@ Prioritize high-potential prospects ✅
 Save time on cold or fake leads ✅
 
 Integrate leads into CRMs easily ✅
+
+
+## 🎥 Video submission
+
+Watch the full walkthrough here:  
+
+👉 click this direct link: https://www.loom.com/share/d614e18f5e8e4a76b0716f55ac9aa12c
